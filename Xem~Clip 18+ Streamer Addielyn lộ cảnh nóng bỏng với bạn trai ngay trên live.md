@@ -1,8 +1,12 @@
 Xinh, gợi cảm và thường xuyên phô diễn thân hình nóng bỏng của mình qua những bộ trang phục đầy gợi cảm cùng những điệu nhảy đầy năng lượng, không ngạc nhiên khi Addie Lyn nhanh chóng trở thành một trong những nữ streamer được yêu thích bậc nhất.
 
-Mỗi lần lên sóng, cô nàng thu hút hàng nghìn, có khi là cả chục nghìn người theo dõi trực tiếp. Tuy nhiên, sự nghiệp của Addie Lyn đỉnh cao bao nhiêu cũng nhanh tuột dốc chống vánh bấy nhiêu. Nguyên nhân bắt nguồn từ một sự cố đơn giản nhưng "tai hại" mà bất cứ streamer nào cũng dễ mắc phải. Đó là quên tắt livestream sau khi kết thúc buổi phát sóng, vô tình để lộ khoảnh khắc riêng tư trước khán giả.
 
-Theo đó, trong lần sơ suất ấy, Addie Lyn đã quên tắt livestream và camera rất nhanh ghi lại trước hàng nghìn người theo dõi phân cảnh cô nàng đi lại trong phòng với trang phục rất "mát mẻ" sau khi tắm. Đáng nói hơn, còn xuất hiện thêm một người đàn ông mặc áo đen, quần đùi trên sóng và cả hai có những tương tác khá thân mật. Nhưng ngay sau đó, anh chàng này phát hiện nữ streamer quên tắt máy quay, và cuống cuồng rời khỏi màn hình. Nữ streamer cũng rất nhanh, tắt phiên livestream nhưng mọi thứ đã chậm, nhất là khi có tới hàng nghìn người đang theo dõi trực tuyến.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
 
 
 Video trực tiếp của Addie Lyn đã lan truyền trên Internet và cô đã khẩn trương xóa tất cả video khỏi kênh, đồng thời đăng một lời xin lỗi dài trên blog cá nhân của mình. Nữ streamer giải thích rằng mình vẫn không quen với giao diện điều hành tiếng Anh, dẫn đến sơ suất như trên đồng thời cho rằng vì chưa ổn định với bạn trai nên chưa muốn công khai. Thế nhưng sự nghiệp của nữ streamer xinh đẹp này cũng đã bị ảnh hưởng khá nhiều.
